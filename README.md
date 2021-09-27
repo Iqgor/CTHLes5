@@ -32,3 +32,4 @@ Verwarm de oven voor op 175 °C. Vet de springvorm in. Bestuif het werkblad, de 
 Schil de appels, snijd ze in kwarten en verwijder het klokhuis. Snijd de kwarten in stukjes en doe in een kom. Meng de kaneel en de rest van de suiker door de appel. Meng de helft van het eigeel door de amandelspijs en verdeel over de bodem. Schep de appels erop.
 #### 4
 Rol het achtergehouden deeg uit tot een vierkante lap. Snijd in repen van 2 cm breed en leg in een ruitpatroon op de vulling. Bestrijk met de rest van het eigeel. Bak de taart iets onder het midden van de oven in ca. 1 uur goudbruin en gaar.
+![Appeltaart](https://static.ah.nl/static/recepten/img_062468_1600x_JPG.jpg)
