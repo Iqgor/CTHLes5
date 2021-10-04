@@ -7,7 +7,7 @@ _Dit recept is van: Igor herrebrugh_
 **_1 uur oventijd_**
 **_ 1 uur wachten_**
 
-### Ingrediënten
+### Ingrediënten:
 
 • **1** middelgrote ei
 • **1** citroen
